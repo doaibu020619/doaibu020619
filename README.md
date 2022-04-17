@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Android , MEARN**
 
-- 📫 How to reach me **rishavchanda0@gmail.com**
+- 📫 How to reach me **doaibu020619@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
